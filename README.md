@@ -7,7 +7,7 @@ Ejercicio #1:
 
 ![image](https://github.com/user-attachments/assets/669b0046-13f1-41f2-a9ce-9bedd9e25436)
 
-![imagen](https://github.com/user-attachments/assets/519357b6-2655-4d3f-ab38-c57af324aa7c)
+![imagen](https://github.com/user-attachments/assets/91b3d137-faf0-4931-bc6e-dbe25926d756)
 
 
 Ejercicio #2:
